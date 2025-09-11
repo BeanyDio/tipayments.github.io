@@ -1,1 +1,0 @@
-# tipayments.github.io
